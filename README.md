@@ -1,1 +1,0 @@
-# somono.github.io
